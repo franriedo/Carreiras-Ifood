@@ -18,7 +18,7 @@ No iFood, acreditamos na força da diversidade para gerar #Inovação e atingir 
 
 - 💻 **Escritórios Inteligentes**: Espaços colaborativos, equipados com tecnologia de ponta, auditório, quadra, patinetes, áreas de descompressão, biblioteca, jogos, jardim e serviços.
 
-- 🚀 **Mobilidade** No trabalho presencial, oferecemos vale-transporte, opção de transporte fretado, estacionamento conveniado, vale-combustível e cupons de táxi no iFood Flex.
+- 🚀 **Mobilidade**: No trabalho presencial, oferecemos vale-transporte, opção de transporte fretado, estacionamento conveniado, vale-combustível e cupons de táxi no iFood Flex.
 - 🥗 **Comidinhas**: Além de vale-refeição e vale-alimentação, os FoodLovers contam com voucher no app. Café da manhã, barista, frutas e outras delícias estão sempre disponíveis em nossos escritórios, durante o trabalho presencial.
 
 - 🍼 **Apoio a pais e mães**: Licença maternidade e paternidade estendidas, coaching de carreira para mães gestantes, grupo de apoio e trocas para pais e mães, auxílio creche, espaço de amamentação no escritório. parceria com o app Play Kids, programa iFamily de suporte para o retorno gradual dos pais, onbording na volta da licença e acompanhamento de buddy. Além disso, oferecemos apoio psicológico e jurídico para adoção.
