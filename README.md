@@ -12,7 +12,7 @@ No iFood, acreditamos na força da diversidade para gerar #Inovação e atingir 
 
 - 😄 **Saúde e bem-estar**: Horários flexíveis, programas de apoio à saúde física e metal para FoodLovers e seus familiares, além de assistências médica, odontológica, seguro de vida e parceria na compra de medicamentos.
 
-- 💳 **iFood Flex**         |Nossos benefícios são distribuídos em um programa de pontos, e é você quem escolhe o que e como vai aproveitar. Alguns deles são: vale-cultura, clube de pontos, auxílio-pet e parceria com a Gympass.
+- 💳 **iFood Flex**: Nossos benefícios são distribuídos em um programa de pontos, e é você quem escolhe o que e como vai aproveitar. Alguns deles são: vale-cultura, clube de pontos, auxílio-pet e parceria com a Gympass.
 
 - 📚**Desenvolvimento**: As manhãs de quartas estão reservadas para o autodesenvolvimento. Através do iLearn, uma plataforma exclusiva do iFood, os FoodLovers têm acesso a conteúdos de qualificação profissional. Além disso, oferecemos subsídio correspondente ao cargo para o estudo de línguas e diversas parcerias com instituições de ensino.
 
