@@ -1,4 +1,4 @@
-# Você tem forme de que? 💖
+# Você tem fome de que? 💖
 Nós, **FoodLovers**, temos fome de inovação e resultado. Buscamos sempre fazer o nosso melhor, pensando "fora da caixa" e atuando com agilidade e responsabilidade! Temos fome de diversidade, conhecimento e compartilhamento. Trabalhamos em um ambiente de muita versatilidade. Sabe o que promove a nossa receita especial? As pessoas! Vem fazer parte disso 🤝
 
 ![enter image description here](https://e3ba6e8732e83984.cdn.gocache.net/uploads/image/file/2183847/regular_f53669747818cd60a5b3a361baf20eec.jpg)
